@@ -1,2 +1,2 @@
 # Programowanie-w-IT
-Maciek ekinci
+siema widzowie witam was w moim odcinku 
